@@ -1,0 +1,1 @@
+# polityka-i-warunki
